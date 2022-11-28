@@ -1,2 +1,2 @@
-# ataevboris.github.io
-мой первый проект
+# Атаев Борис
+https://vk.com/uje_zav_tra
